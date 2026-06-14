@@ -3,6 +3,17 @@ Expert Intelligence Document
 The updated knowledge base contains expert opinions, predictions, market analysis, and forecasts. The most recent and updated knowledge is at the top of this list.
 
 
+-----------
+
+Dated: 2026-06-12
+Source: Ted
+Expert Analysis: 
+I wouldn't be surprised if Bitcoin goes for another lower high.
+
+This'll make permabulls go loud exactly like last month.
+
+Then, Bitcoin will nuke to new lows in Q3, which will coincide with the 4-year bottom.
+
 --------------------
 
 DATE: 2026-05-30
