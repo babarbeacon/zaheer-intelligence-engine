@@ -16,7 +16,7 @@ The Big Sunday Report: All We Need to Know
 
 🚩TA / LCA / Psychological Breakdown: 
 
-In my framework, short-term moves between 60-64k or 60-68k do not change how I view the position. The focus is on the macro move toward the 40-50k area which i described as CBB zone (CONFIRMED BLACKROCK BOTTOM), which is still 4-5 months away in my view. Short-term fluctuation in this range is exactly what I expect during Stage 5, and it does not affect the positioning. A day trader would care about every 2-3% move. I do not trade that way. The approach is built for the macro structure, not for short-term swings. The shorts stay open, no adjustments based on weekly fluctuation, and the wait for the structure to deliver continues. DrProfit Premium is free to join right now: but only for 2 more days. After that the free window closes, so get in while you can: VIP Channel: t.me/+ApuqhPPQ8XlkY…
+In my framework, short-term moves between 60-64k or 60-68k do not change how I view the position. The focus is on the macro move toward the 40-50k area which i described as CBB zone (CONFIRMED BLACKROCK BOTTOM), which is still 4-5 months away in my view. Short-term fluctuation in this range is exactly what I expect during Stage 5, and it does not affect the positioning. A day trader would care about every 2-3% move. I do not trade that way. The approach is built for the macro structure, not for short-term swings. The shorts stay open, no adjustments based on weekly fluctuation, and the wait for the structure to deliver continues.
 
 The aSOPR Signal
 
@@ -36,9 +36,6 @@ Calendar This Week
 
 FOMC meeting Wednesday June 17th is the major event. This is Warsh's first FOMC as Chair. Markets are pricing in a dovish tone and possible signals about future cuts. In my view the dovish pivot will not be delivered cleanly. Retail sales Tuesday June 16th. Initial jobless claims Thursday June 18th. Expect heavy volatility around the FOMC statement and press conference. I think the FOMC results will cause in more red in the stock market and crypto markets 
 
-DrProfit Premium is free to join right now: but only for 2 more days. After that the free window closes, so get in while you can: VIP Channel: t.me/+ApuqhPPQ8XlkY…
-
-THIS IS NO FINANCIAL ADVICE BUT EDUCATIONAL CONTENT ONLY
 -----------
 
 Dated: 2026-06-12
