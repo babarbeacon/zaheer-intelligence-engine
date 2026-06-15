@@ -2,7 +2,43 @@ Expert Intelligence Document
 
 The updated knowledge base contains expert opinions, predictions, market analysis, and forecasts. The most recent and updated knowledge is at the top of this list.
 
+---------------
 
+Dated: 2026-06-15
+
+Source: Doctor Profit
+
+Expert Analysis:
+
+#Bitcoin – What's Next?
+
+The Big Sunday Report: All We Need to Know
+
+🚩TA / LCA / Psychological Breakdown: 
+
+In my framework, short-term moves between 60-64k or 60-68k do not change how I view the position. The focus is on the macro move toward the 40-50k area which i described as CBB zone (CONFIRMED BLACKROCK BOTTOM), which is still 4-5 months away in my view. Short-term fluctuation in this range is exactly what I expect during Stage 5, and it does not affect the positioning. A day trader would care about every 2-3% move. I do not trade that way. The approach is built for the macro structure, not for short-term swings. The shorts stay open, no adjustments based on weekly fluctuation, and the wait for the structure to deliver continues. DrProfit Premium is free to join right now: but only for 2 more days. After that the free window closes, so get in while you can: VIP Channel: t.me/+ApuqhPPQ8XlkY…
+
+The aSOPR Signal
+
+One metric I am watching closely is aSOPR (Adjusted Spent Output Profit Ratio). It shows whether the average BTC being moved on-chain is being sold at a profit or a loss. Right now, losses are starting to be realized. People who bought at 70k, 80k, 90k, 100k, and at ATH levels are beginning to sell into the market at meaningful losses for the first time in this bear market. This is exactly the behavior I have been watching for since Stage 4: short-term holders capitulating!
+
+The important part is this: the selling has not yet reached the extreme levels seen in previous bear market bottoms. In 2018, in 2022, and in every prior cycle, the bottom came with a single extreme realized-loss event. One day, one week, one event where panic selling reaches absolute maximum. In my framework that moment is the capitulation, and that is what I am waiting for. Right now the realization phase is starting, and people understood that the bottom was not in, and yet selling now ? I dont understand how these people trade.
+
+The CBB Thesis
+
+The bottom for Bitcoin will be the BlackRock zone, the area where the BlackRock ETF launched in early 2024. The 40-50k region remains my target for the final cycle bottom, and September-October 2026 remains the preferred timeline. This thesis is not new. It goes back to July 2024 when I wrote that the Golden Bull region would mark or be very close to the bottom of the next bear market. Now, two years later, price action is converging toward exactly that zone. The CBB is the architecture of the final flush in my view.
+
+Stage 5 Progress
+
+We are in the early phase of Stage 5. Capitulation has not happened yet. I expect more weeks of fluctuation between 58kk and 68k. Short squeezes that punish late bears. Long traps that punish bottom callers. Violent moves in both directions. This is the architecture of the coming 1-3 weeks. The longer we move sideway, the larger the capitulation, and the cleaner the final bottom.
+
+Calendar This Week
+
+FOMC meeting Wednesday June 17th is the major event. This is Warsh's first FOMC as Chair. Markets are pricing in a dovish tone and possible signals about future cuts. In my view the dovish pivot will not be delivered cleanly. Retail sales Tuesday June 16th. Initial jobless claims Thursday June 18th. Expect heavy volatility around the FOMC statement and press conference. I think the FOMC results will cause in more red in the stock market and crypto markets 
+
+DrProfit Premium is free to join right now: but only for 2 more days. After that the free window closes, so get in while you can: VIP Channel: t.me/+ApuqhPPQ8XlkY…
+
+THIS IS NO FINANCIAL ADVICE BUT EDUCATIONAL CONTENT ONLY
 -----------
 
 Dated: 2026-06-12
