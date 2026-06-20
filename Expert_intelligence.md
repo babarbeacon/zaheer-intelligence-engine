@@ -4,6 +4,18 @@ The updated knowledge base contains expert opinions, predictions, market analysi
 
 ---------------
 
+Dated: 2026-06-20
+
+Expert Analysis:
+
+Bitcoin: The bear market is coming to an end! The bull market is now only 3 months away.
+
+Setting spot buy orders at 53k, 51k, 49k, 47k, and 45k, where I expect the cycle bottom to form.
+
+The dark days are coming to an end, and the sun will start shining again. Bull market..⏳
+
+---------------
+
 Dated: 2026-06-15
 
 Source: Doctor Profit
